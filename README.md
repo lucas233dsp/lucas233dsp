@@ -1,2 +1,2 @@
-TELECOM Engineering 🖥️📡
-Computer Technician 💻🔌
+- TELECOM Engineering 🖥️📡
+- Computer Technician 💻🔌
